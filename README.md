@@ -22,7 +22,7 @@ No fine girls just ugly faces
 From frustration first inclination
 Is to become a monk and leave the situation
 But every dark tunnel has a light of hope
-So dongt hang yourself, with a celibate rope
+So don't hang yourself, with a celibate rope
 Your movie's showing, so you're goin
 Could care less about the five you're blowing
 Theater gets dark just to start the show
@@ -47,7 +47,7 @@ So a brother with the money can be their man
 So on the beach you're strolling real high rolling
 Everything you have is yours and not stolen
 A girl runs up with something to prove
-So dongt just stand there bust a move
+So don't just stand there bust a move
 
 Your best friend Harry has a brother Larry
 In five days from now he's gonna marry
@@ -56,7 +56,7 @@ Cause in the ceremony you'll be the best man
 You say neat-o, check your libido
 And roll to the church in your new tuxedo
 The bride walks down just to start the wedding
-And there's one more girl you wongt be getting
+And there's one more girl you won't be getting
 So you start thinking then you start blinking
 The bridesmaid looks and thinks that you're winking
 She thinks your kinda cute so she winks back
