@@ -1,5 +1,5 @@
 This here's a tail for all the fellas
-Tryin; to do what those ladies tell us
+Trying to do what those ladies tell us
 Get shot down cause ya over-zealous
 Play hard to get females get jealous
 Okay smarty go to a party
